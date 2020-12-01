@@ -2,12 +2,7 @@
 ![alt text](https://i.postimg.cc/Y0ymWhgC/reapergamescreen.png)
 
 
-&nbsp  
 
-&nbsp  
-&nbsp  
-&nbsp  
-&nbsp  
 
 
 
